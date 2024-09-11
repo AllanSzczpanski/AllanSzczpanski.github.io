@@ -1,1 +1,0 @@
-# AllanSzczpanski.github.io
